@@ -1,3 +1,4 @@
+![image](https://github.com/Devilreaper123/System-s-Integration/assets/67621176/2185640c-8408-4d2c-8d58-8ef592482891)
 
 # Assignment 1: System's Integration
 
